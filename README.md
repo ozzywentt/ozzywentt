@@ -1,0 +1,5 @@
+- 🐳Hi there, I’m Oğuzhan Çınar but you can say ozzy, also my nickname is ozzywentt
+- 😈I’m interested in game design and development also i'm interested in computer equipment
+- 🤑I’m currently learning c++, flowchart and c#, that's it for now
+- 👣I’m looking to collaborate on many websides.For example; I use hostinger.web, freelancer.com like this. İn fact, I’m looking to collaborate on my social environment and my schoolmates
+- 🙈How to reach me: you can reach me; on instagram:_oguzhancnr
